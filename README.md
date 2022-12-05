@@ -1,4 +1,4 @@
-- 👋 Hi, I’m SUraj Kumar Dwivedi aka @nightfury1720
+- 👋 Hi, I’m Suraj Kumar Dwivedi aka @nightfury1720
 - 🌱 I’m currently learning everything I can get my hands on
 - 💞️ I’m looking to collaborate on anything productive
 - 📫 How to reach me ... surajguava@gmail.com
